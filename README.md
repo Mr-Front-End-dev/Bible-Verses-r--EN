@@ -1,1 +1,1 @@
-# Simple-Bible-Verses-y--EN
+# Simple-Bible-Verses-r--EN
